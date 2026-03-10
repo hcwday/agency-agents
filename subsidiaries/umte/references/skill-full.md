@@ -1,0 +1,1 @@
+/home/heechang83/umte/skills/umte-trading-optimization-SKILL.md
